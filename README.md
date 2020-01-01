@@ -1,4 +1,6 @@
-![alt](https://msteffl.github.io/hochzeit/assets/icons8-diamantring-16.png "Logo Title Text 1") ## Tagesprogramm
+<img align="left" src="https://msteffl.github.io/hochzeit/assets/icons8-diamantring-40.png" alt="Resume application project app icon">
+
+## Tagesprogramm
 
 You can use the [editor on GitHub](https://github.com/msteffl/hochzeit/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
