@@ -65,3 +65,23 @@ h2 {
   background-repeat: no-repeat;
 }
 
+.ankunft:before {
+  content: "";
+  background-image: url("https://msteffl.github.io/hochzeit/assets/icons8-hotel-check-in-40.png");
+  width: 40px;
+  height: 40px;
+  padding: 0px 20px;
+  background-size: contain;
+  background-repeat: no-repeat;
+}
+
+h2#1300-uhr---ankunft-festhalle-niederstetten:before {
+  content: "";
+  background-image: url("https://msteffl.github.io/hochzeit/assets/icons8-hotel-check-in-40.png");
+  width: 40px;
+  height: 40px;
+  padding: 0px 20px;
+  background-size: contain;
+  background-repeat: no-repeat;
+}
+
