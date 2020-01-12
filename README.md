@@ -5,7 +5,7 @@ In der kath. [Zwölf-Apostel-Kirche](https://goo.gl/maps/H3DvSGBLtHUXh3wZ6) in D
 
 <p class="ankunft"></p>
 
-## 13:00 Uhr - Ankunft Festhalle Niederstetten
+## Ankunft
 Die Feier findet in der Halle in Niederstetten statt
 
 ## 14:00 Uhr - Mittagessen
