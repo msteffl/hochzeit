@@ -4,6 +4,7 @@
 In der kath. [Zwölf-Apostel-Kirche](https://goo.gl/maps/H3DvSGBLtHUXh3wZ6) in Dörzbach
 
 <p class="ankunft"></p>
+
 ## 13:00 Uhr - Ankunft Festhalle Niederstetten
 Die Feier findet in der Halle in Niederstetten statt
 
