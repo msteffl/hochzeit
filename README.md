@@ -1,7 +1,7 @@
 ## Tagesprogramm
 
 ## 10:30 Uhr - Kirche
-In der kath. Zwölf-Apostel-Kirche in Dörzbach [Link]("https://goo.gl/maps/H3DvSGBLtHUXh3wZ6")
+In der kath. [Zwölf-Apostel-Kirche](https://goo.gl/maps/H3DvSGBLtHUXh3wZ6) in Dörzbach
 
 ## 13:00 Uhr - Ankunft Festhalle Niederstetten
 Die Feier findet in der Halle in Niederstetten statt
