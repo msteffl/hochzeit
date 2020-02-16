@@ -1,3 +1,5 @@
+---
+
 ## 11:00 Uhr - Kirche
 Die kirchliche Trauung, findet in der katholischen [Zwölf-Apostel-Kirche](https://goo.gl/maps/H3DvSGBLtHUXh3wZ6) in Dörzbach statt. Parkplätze gibt es direkt vor der Kirche (Hier kann auch am Straßenrand geparkt werden). Im Anschluss an die Kirche gibt es einen kleinen Sektempfang mit Snacks direkt an der Kirche.
 
@@ -26,7 +28,9 @@ Da es sich um eine deutsch - russische Hochzeit handelt, haben wir hier einige d
 Vor dem Eintritt in den Festsaal empfangen die Eltern das Brautpaar mit dem traditionellen Laib und Salz. Danach trennen die Beiden von dem Brot ein Stück ab, tauchen es in Salz ein und lassen einander verkosten. Die Eltern sprechen somit einen Segen für Braut und Bräutigam aus. Sie wünschen symbolisch dem Brautpaar eine starke Ehe, Wohlstand und eine Priese Würze für das gemeinsame Eheleben.
 
 **Brautschuh-Klau**
+
 Eine wild verkleidete Truppe klaut der Braut ihren Schuh, und das kurz vor dem Hochzeitstanz. Damit dieser nun stattfinden kann, soll der Schuh nun von der Hochzeitsgesellschaft „freigekauft“ werden. Es können Kleinbeträge in den Schuh gelegt werden, oder aber ab einer bestimmten Summe, Wünsche an die Trauzuegen gerichtet werden. Diese müssen die Wünsche/Aufgaben erfüllen um das Geld zu bekommen. Wenn genug Geld gesammelt ist, darf der Bräutigam seiner Braut den Schuh anziehen.
 
 **Brautschleier Abnahme**
+
 Um Mitternacht lässt die Braut traditionell den Schleier abnehmen. Diese Zeremonie symbolisiert den Beginn des Ehelebens. Das Paar ist von jetzt an das „richtige“ Ehepaar.
