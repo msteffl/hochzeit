@@ -14,7 +14,7 @@ Im Anschluss an das Essen gibt es über den Tag verteilt Programmpunkte nach rus
 Mit der Brautschleier Abnahme endet das offizielle Programm der Hochzeit. Wir würden uns aber trotzdem freuen, wenn ihr mit uns gemeinsam noch weiterfeiert.
 
 ## 01:30 Uhr & 03:00 Uhr - Bus Transfer nach Dörzbach
-Wer Richtung Dörzbach möchte, hat die Möglichkeit um 01:30Uhr und um 03:00Uhr mit dem Bus nach Hause zu fahren. Abfahrt an der Hauptstraße vor dem [Parkplatz](https://goo.gl/maps/s9pWW5YUuKMqYA4Y9).
+Wer Richtung Dörzbach möchte, hat die Möglichkeit um 01:30Uhr und um 03:00Uhr mit dem Bus (50 Personen Bus) nach Hause zu fahren. Abfahrt an der Hauptstraße vor dem [Parkplatz](https://goo.gl/maps/s9pWW5YUuKMqYA4Y9).
 
 ---
 
