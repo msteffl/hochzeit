@@ -1,5 +1,3 @@
----
-
 ## 11:00 Uhr - Kirche
 Die kirchliche Trauung, findet in der katholischen [Zwölf-Apostel-Kirche](https://goo.gl/maps/H3DvSGBLtHUXh3wZ6) in Dörzbach statt. Parkplätze gibt es direkt vor der Kirche (Hier kann auch am Straßenrand geparkt werden). Im Anschluss an die Kirche gibt es einen kleinen Sektempfang mit Snacks direkt an der Kirche.
 
