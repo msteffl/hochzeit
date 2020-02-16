@@ -27,7 +27,7 @@ Vor dem Eintritt in den Festsaal empfangen die Eltern das Brautpaar mit dem trad
 
 **Brautschuh-Klau**
 
-Eine wild verkleidete Truppe klaut der Braut ihren Schuh, und das kurz vor dem Hochzeitstanz. Damit dieser nun stattfinden kann, soll der Schuh nun von der Hochzeitsgesellschaft „freigekauft“ werden. Es können Kleinbeträge in den Schuh gelegt werden, oder aber ab einer bestimmten Summe, Wünsche an die Trauzuegen gerichtet werden. Diese müssen die Wünsche/Aufgaben erfüllen um das Geld zu bekommen. Wenn genug Geld gesammelt ist, darf der Bräutigam seiner Braut den Schuh anziehen.
+Eine wild verkleidete Truppe klaut der Braut ihren Schuh, und das kurz vor dem Hochzeitstanz. Damit dieser nun stattfinden kann, soll der Schuh nun von der Hochzeitsgesellschaft „freigekauft“ werden. Ab einer bestimmten Summe können Wünsche an die Trauzuegen oder das Brautpaar gerichtet werden. Diese müssen die Wünsche/Aufgaben erfüllen um das Geld zu bekommen. Wenn genug Geld gesammelt ist, darf der Bräutigam seiner Braut den Schuh anziehen.
 
 **Brautschleier Abnahme**
 
