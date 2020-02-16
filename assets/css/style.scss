@@ -18,7 +18,7 @@
 }
 
 .project-tagline.big {
-  font-size: 2vw;
+  font-size: 5vh;
   font-weight: 800;
   opacity: 0.8;
 }
@@ -39,13 +39,20 @@ h2 {
 }
 
 .citat {
-  font-family: 'Dancing Script', cursive;
-  color: #DAA520;
-  font-size: 2vw;
   display: flex;
   flex-direction: column;
   align-items: center;
   justify-content:center;
+}
+
+.citat-text {
+  font-family: 'Dancing Script', cursive;
+  color: #DAA520;
+  font-size: 5vh;
+}
+
+.citat-author {
+    font-size: 3vh;
 }
 
 #tagesprogramm:before {
