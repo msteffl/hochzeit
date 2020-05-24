@@ -1,3 +1,6 @@
+## Update vom 24.05.2020
+Leider sind wir aufgrund der aktuellen Lage, mit den ständig ändernden Corona Bestimmungen und den nicht so einfach zu realisierenden und unangenehmen Hygienemaßnahmen dazu gezwungen, die Hochzeit zu verschieben. Der neue Termin steht auch schon. Dies ist der 26.06.2021. Wir würden uns freuen wenn Ihr euch auch diesen Termin freihalten könnt und mit uns zusammen feiert :-) Die Rahmenbedingungen und der Ablauf bleibt der gleiche, nur an einem anderen Tag.
+
 ## 11:00 Uhr - Kirche
 Die kirchliche Trauung, findet in der katholischen [Zwölf-Apostel-Kirche](https://goo.gl/maps/H3DvSGBLtHUXh3wZ6) in Dörzbach statt. Parkplätze gibt es direkt vor der Kirche (Hier kann auch am Straßenrand geparkt werden). Im Anschluss an die Kirche gibt es einen kleinen Sektempfang mit Snacks direkt an der Kirche.
 
