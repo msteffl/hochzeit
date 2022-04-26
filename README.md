@@ -1,10 +1,10 @@
 ## Update vom 01.03.2022
 Da momentan keine der Regelungen dagegen sprechen die Hochzeit zu feiern, findet die Hochzeit dieses Jahr endlich!!! wie geplant am 21.05.2022 statt. Für die Planung bitten wir Euch, uns eine kurze Info zukommen zu lassen ob Ihr auch wie geplant kommt. Wir freuen uns auf die Feier mit euch :-)
 
-## 11:00 Uhr - Kirche
+## 10:30 Uhr - Kirche
 Die kirchliche Trauung, findet in der katholischen [Zwölf-Apostel-Kirche](https://goo.gl/maps/H3DvSGBLtHUXh3wZ6) in Dörzbach statt. Parkplätze gibt es direkt vor der Kirche (Hier kann auch am Straßenrand geparkt werden). Im Anschluss an die Kirche gibt es einen kleinen Sektempfang mit Snacks direkt an der Kirche.
 
-## 14:00 Uhr - Ankunft Festhalle Niederstetten
+## 13:00 Uhr - Ankunft Festhalle Niederstetten
 Den Tag wollen wir in der [Alten Turnhalle in Niederstetten](https://goo.gl/maps/V48giZLtioRkqqWy8) mit euch gemeinsam verbringen. Geparkt werden kann hier auf dem [Parkplatz](https://goo.gl/maps/s9pWW5YUuKMqYA4Y9) oder entlang der [Hauptstraße](https://goo.gl/maps/zw2PDHvuVfjM32zY9). Bevor es hinein in die Halle geht, bitten wir, euch kurz vor der Halle zu versammeln.
 
 ## 14:30 Uhr - Hochzeitsessen
@@ -13,7 +13,7 @@ Kurz nach der Ankunft an der Halle ist es dann Zeit für das Hochzeitsessen. Bev
 ## ab 15:30 Uhr - Hochzeitsprogramm
 Im Anschluss an das Essen gibt es über den Tag verteilt Programmpunkte nach russischer Tradition. Für das leibliche Wohl ist dabei durch Kuchen, Abendessen, Mitternachtssnack und Barbetrieb gesorgt.
 
-## 24:00 Uhr - Brautschleier Abnahme
+## 23:30 Uhr - Brautschleier Abnahme
 Mit der Brautschleier Abnahme endet das offizielle Programm der Hochzeit. Wir würden uns aber trotzdem freuen, wenn ihr mit uns gemeinsam noch weiterfeiert.
 
 ## 01:30 Uhr & 03:00 Uhr - Bus Transfer nach Dörzbach/Klepsau
