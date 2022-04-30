@@ -19,7 +19,7 @@ Mit der Brautschleier Abnahme endet das offizielle Programm der Hochzeit. Wir w�
 ## 01:30 Uhr & 03:00 Uhr - Bus Transfer nach Dörzbach/Klepsau
 Wer Richtung Dörzbach/Klepsau möchte, hat die Möglichkeit um 01:30Uhr und um 03:00Uhr mit dem Bus (50 Personen Bus) nach Hause zu fahren. Abfahrt an der Hauptstraße vor dem [Parkplatz](https://goo.gl/maps/s9pWW5YUuKMqYA4Y9).
 
-## 12.07.2020 ca. 10 Uhr - Frühstück in der Halle (Optional)
+## 22.05.2022 ca. 10 Uhr - Frühstück in der Halle (Optional)
 Am nächsten Tag findet ein gemeinsames Frühstück in der Halle in Niederstetten statt. Dabei wird Nudelsuppe vom Brautpaar serviert und die Hochzeit gemütlich ausklingen gelassen. Alle sind herzlich eingeladen. 
 
 ---
@@ -33,7 +33,7 @@ Vor dem Eintritt in den Festsaal empfangen die Eltern das Brautpaar mit dem trad
 
 **Brautschuh-Klau**
 
-Eine wild verkleidete Truppe klaut der Braut ihren Schuh, und das kurz vor dem Hochzeitstanz. Damit dieser nun stattfinden kann, soll der Schuh nun von der Hochzeitsgesellschaft „freigekauft“ werden. Ab einer bestimmten Summe können Wünsche an die Trauzuegen oder das Brautpaar gerichtet werden. Diese müssen die Wünsche/Aufgaben erfüllen um das Geld zu bekommen. Wenn genug Geld gesammelt ist, darf der Bräutigam seiner Braut den Schuh anziehen. Beispiel: 3 Gäste schließen sich zusammen, bezahlen 30 € und wünschen sich von den Trauzeugen, dass sie den Ententanz aufführen.
+Eine wild verkleidete Truppe klaut der Braut ihren Schuh, und das kurz vor dem Hochzeitstanz. Damit dieser nun stattfinden kann, soll der Schuh nun von der Hochzeitsgesellschaft „freigekauft“ werden. Ab einer bestimmten Summe können Wünsche an die Trauzuegen (50€) oder das Brautpaar (100€) gerichtet werden. Diese müssen die Wünsche/Aufgaben erfüllen um das Geld zu bekommen. Wenn genug Geld gesammelt ist, darf der Bräutigam seiner Braut den Schuh anziehen. Beispiel: 5 Gäste schließen sich zusammen, bezahlen 50 € und wünschen sich von den Trauzeugen, dass sie den Ententanz aufführen.
 
 **Brautschleier Abnahme**
 
