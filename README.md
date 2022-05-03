@@ -33,7 +33,7 @@ Vor dem Eintritt in den Festsaal empfangen die Eltern das Brautpaar mit dem trad
 
 **Brautschuh-Klau**
 
-Eine wild verkleidete Truppe klaut der Braut ihren Schuh, und das kurz vor dem Hochzeitstanz. Damit dieser nun stattfinden kann, soll der Schuh nun von der Hochzeitsgesellschaft „freigekauft“ werden. Ab einer bestimmten Summe können Wünsche an die Trauzuegen (50€) oder das Brautpaar (100€) gerichtet werden. Diese müssen die Wünsche/Aufgaben erfüllen um das Geld zu bekommen. Wenn genug Geld gesammelt ist, darf der Bräutigam seiner Braut den Schuh anziehen. Beispiel: 5 Gäste schließen sich zusammen, bezahlen 50 € und wünschen sich von den Trauzeugen, dass sie den Ententanz aufführen.
+Eine wild verkleidete Truppe klaut der Braut ihren Schuh, und das kurz vor dem Hochzeitstanz. Damit dieser nun stattfinden kann, soll der Schuh nun von der Hochzeitsgesellschaft „freigekauft“ werden. Ab einer bestimmten Summe können Wünsche an die Trauzeugen (50€) oder das Brautpaar (100€) gerichtet werden. Diese müssen die Wünsche/Aufgaben erfüllen um das Geld zu bekommen. Wenn genug Geld gesammelt ist, darf der Bräutigam seiner Braut den Schuh anziehen. Beispiel: 5 Gäste schließen sich zusammen, bezahlen 50 € und wünschen sich von den Trauzeugen, dass sie den Ententanz aufführen.
 
 **Brautschleier Abnahme**
 
