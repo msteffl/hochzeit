@@ -17,7 +17,7 @@ Im Anschluss an das Essen gibt es über den Tag verteilt Programmpunkte nach rus
 Mit der Brautschleier Abnahme endet das offizielle Programm der Hochzeit. Wir würden uns aber trotzdem freuen, wenn ihr mit uns gemeinsam noch weiterfeiert.
 
 ## 01:30 Uhr & 03:15 Uhr - Bus Transfer nach Dörzbach/Klepsau
-Wer Richtung Dörzbach/Klepsau möchte, hat die Möglichkeit um 01:30Uhr und um 03:15Uhr mit dem Bus (50 Personen Bus) nach Hause zu fahren. Abfahrt an der Oberstetter Str. 1, 97996 Niederstetten vor dem [DLRK/Rotes Kreuz](https://goo.gl/maps/eckf421hQnBLuAkCA).
+Wer Richtung Dörzbach/Klepsau möchte, hat die Möglichkeit um 01:30Uhr und um 03:15Uhr mit dem Bus (50 Personen Bus) nach Hause zu fahren. Abfahrt an der Oberstetter Str. 1, 97996 Niederstetten vor dem [DLRG/Rotes Kreuz](https://goo.gl/maps/eckf421hQnBLuAkCA).
 
 ## 22.05.2022 ca. 10 Uhr - Frühstück in der Halle (Optional)
 Am nächsten Tag findet ein gemeinsames Frühstück in der Halle in Niederstetten statt. Dabei wird Nudelsuppe vom Brautpaar serviert und die Hochzeit gemütlich ausklingen gelassen. Alle sind herzlich eingeladen. 
